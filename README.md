@@ -4,4 +4,4 @@
 
 📫 thalles.horn@escola.pr.gov.br
 
-![](https://tenor.com/beL7I.gif)
+[github](https://tenor.com/beL7I.gif)
