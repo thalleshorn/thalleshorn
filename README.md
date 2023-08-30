@@ -4,5 +4,5 @@
 
 📫 thalles.horn@escola.pr.gov.br
 
-[github](https://tenor.com/beL7I.gif)
+[]([url](https://tenor.com/pt-BR/view/sheldon-cooper-big-bang-theory-excited-ay-ay-ay-smile-gif-15875568))
 **https://tenor.com/pt-BR/view/sheldon-cooper-big-bang-theory-excited-ay-ay-ay-smile-gif-15875568**
