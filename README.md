@@ -1,6 +1,9 @@
 **👋 Olá, bem vindo ao meu perfil !!**
 
-🧮 Professor de Matemática, Pensamento Computacional, Robótica e Edutech.
+🧮 Professor de Matemática
+💻 Professor de Pensamento Computacional
+🤖 Professor de Robótica
+🎮 Professor de Edutech.
 
 📫 thalles.horn@escola.pr.gov.br
 
