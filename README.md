@@ -9,3 +9,4 @@
 
 ![](https://tenor.com/pt-BR/view/young-sheldon-spock-long-live-and-prosper-star-trek-sheldon-cooper-gif-15844681.gif) 
 ![](https://tenor.com/pt-BR/view/smile-funny-face-jim-parsons-sheldon-cooper-big-bang-theory-gif-17499518.gif)
+![](https://tenor.com/pt-BR/view/tbbt-sheldon-cooper-shock-facepalm-tragedy-gif-23843729.gif)
