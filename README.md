@@ -10,5 +10,3 @@ Fundador da Feira Itinerante das Escolas do Núcleo de Guarapuava -**FIEG**
 📫 thalles.horn@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/fQL9zUQhCfoAAAAC/choji-akimichi-eating.gif)
-![](https://media1.tenor.com/m/Cyr2PR6E3kkAAAAC/sacha-baron.gif)
-![](https://media1.tenor.com/m/5CHTyu3VobgAAAAC/abe-simpson.gif)
